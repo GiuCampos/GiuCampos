@@ -1,5 +1,5 @@
 ## Oii! Eu sou a Giuliana 😊
-💻 Atualmente faço estágio na Tora Transportes. <br>
+💻 Atualmente faço estágio na ioasys. <br>
 📚 Estudando Gestão da Tecnologia da Informação.
 
  <div>
