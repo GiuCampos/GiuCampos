@@ -1,6 +1,6 @@
 ## Oii! Eu sou a Giuliana 😊
 💻 Atualmente faço estágio na Tora Transportes. <br>
-📚 Estudando ADS.
+📚 Estudando Gesyão da tecnologia da informação.
 
  <div>
   <a href="https://github.com/GiuCampos">
